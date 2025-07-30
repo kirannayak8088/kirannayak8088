@@ -1,5 +1,5 @@
-# 💫 About Me: kiran nayak work in internship
-i am coder and developer
+# 💫 About Me: kiran nayak working in data analyst from my own startup company
+work in codes,programs and developer
 
 
 ## 🌐 Socials:
