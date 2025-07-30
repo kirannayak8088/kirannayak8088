@@ -1,4 +1,4 @@
-# 💫 About Me: kiran nayak working in data analyst from my own startup company
+# 💫 About Me: kiran nayak working in data analyst 
 work in codes,programs and developer
 
 
