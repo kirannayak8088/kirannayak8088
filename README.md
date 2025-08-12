@@ -1,4 +1,4 @@
-# 💫 About Me: kiran nayak working in data analyst 
+# 💫 About Me: kiran nayak software student 
 work in codes,programs and developer
 
 
